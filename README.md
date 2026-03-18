@@ -12,4 +12,4 @@ Safe journey, and the best of luck with your travels, fellow explorer! 🚀
  
 <sub>© Mohammed Usman</sub>
 
-<sub>All rights reserved. No commercial use, redistribution, or modification.</sub>
+<sub>All rights reserved. No commercial use, redistribution, or derivatives.</sub>
