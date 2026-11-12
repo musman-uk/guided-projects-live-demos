@@ -8,7 +8,7 @@ Safe journey, and the best of luck with your travels, fellow explorer! 🚀
 
 ---
 
-<sub>>© Mohammed Usman</sub>
+<sub>© Mohammed Usman</sub>
  
 <sub>Created with Mimo</sub>
 
